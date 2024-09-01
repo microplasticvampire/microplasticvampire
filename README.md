@@ -1,0 +1,5 @@
+- Hey gang, it's microplasticvampire. I usually go by Roxie, Judas or PTSD
+- AUDHD creature, and unfortunately Hungarian
+- I go by she/it, but just abt anything will do as long as you don't they/them me
+- CRINGIEST GUY ALIVE
+- <a href=https://toyhou.se/microplasticvampire>Look at my toyhouse. NEOWWWW </a>
